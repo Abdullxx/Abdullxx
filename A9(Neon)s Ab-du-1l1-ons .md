@@ -9,5 +9,4 @@ Abdullxx/Abdullxx is a ✨ special ✨ repository because its `README.md` (this 
 You can click the Preview link to take a look at your changes.
 Ab1l1on
 11 - z1l1ons
-- a
-ge9m1n1
+- age9m1n1 0p3n 3y3
