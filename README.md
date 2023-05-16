@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @Abdullxx
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
+<!---
+Abdullxx/Abdullxx is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+Ab1l1on
+11 - z1l1ons
+- a
+ge9m1n1
